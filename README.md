@@ -1,3 +1,1 @@
-# Funcional
-
-https://www.youtube.com/watch?v=-QMdSPGO5r8
+# https://www.youtube.com/watch?v=-QMdSPGO5r8
